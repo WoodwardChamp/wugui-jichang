@@ -2,7 +2,7 @@
 
 > **先看结论：家庭月付从 200G 到 1200G，价格与限速逐档上升，同时要求使用官方专属客户端。**
 >
-> 👉 **[进入注册页](https://wuguijiasu.com/#/login?code=dd6NtGYo)** · 先用 18 元 Mini 检查客户端和线路；多人视频需求再看 38 元 Pro。
+> 👉 **[进入注册页](https://wuguijiasu.com/#/login?code=QNAZaT1X)** · 先用 18 元 Mini 检查客户端和线路；多人视频需求再看 38 元 Pro。
 
 ## 哪些人更匹配
 
@@ -53,7 +53,7 @@
 
 ## 注册入口
 
-👉 **[打开注册页面](https://wuguijiasu.com/#/login?code=dd6NtGYo)** · 先用 18 元 Mini 检查客户端和线路；多人视频需求再看 38 元 Pro。
+👉 **[打开注册页面](https://wuguijiasu.com/#/login?code=QNAZaT1X)** · 先用 18 元 Mini 检查客户端和线路；多人视频需求再看 38 元 Pro。
 
 *本文含推广链接；通过该入口注册或购买，本站可能获得佣金。*
 
